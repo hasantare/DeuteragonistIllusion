@@ -11,21 +11,17 @@
 #
 ㅤㅤㅤㅤㅤㅤㅤㅤ
 <p align="center">
-<img src="https://github.com/DeuteragonistIllusion/DeuteragonistIllusion/assets/167505683/fe85643b-753a-4271-8cdc-7d5b0860cb80"/>
-</p>ㅤㅤ
-
-<p align="center">
 <img src="https://github.com/DeuteragonistIllusion/DeuteragonistIllusion/assets/167505683/ed564e4b-5756-4131-bdb3-3b36b7e317fa">
 </p>
 
 #
-⛩️ ` # , Kei / Idior / Keith , , Any other nicknames are welcome ‹𝟹
+🌷 ` # , Kei / Idior / Keith , , Any other nicknames are welcome ‹𝟹
 
-𝗠i̲n̲o̲r̲ 🏮 . 12/04 ☆ . INFJ . Sagittarius ﹐💌୧
+𝗠i̲n̲o̲r̲ 🍥 . 12/04 ☆ . INFJ . Sagittarius ﹐💌୧
 
 ₊˚꒰🍓꒱ Genderfluid . Aroace 🍁٫ ໋ ᘏ ،
 
-♡ . 𝗺𝗮𝗰 , 𝘧𝘳𝘢𝘯 , m̲a̲y̲o̲ , omi ,
+🧷 . 𝗺𝗮𝗰 , 𝘧𝘳𝘢𝘯 , m̲a̲y̲o̲ , omi
 
 
 ﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉
