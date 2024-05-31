@@ -9,12 +9,8 @@
 </p>
 
 #
-ㅤㅤㅤㅤㅤㅤㅤㅤ
-<p align="center">
-<img src="https://github.com/DeuteragonistIllusion/DeuteragonistIllusion/assets/167505683/ed564e4b-5756-4131-bdb3-3b36b7e317fa">
-</p>
+# ☆ . . [ About user @DeuteragonistIllusion ] ₊˚
 
-#
 🌷 ` # , Kei / Idior / Keith , , Any other nicknames are welcome ‹𝟹
 
 𝗠i̲n̲o̲r̲ 🍥 . 12/04 ☆ . INFJ . Sagittarius ﹐💌୧
