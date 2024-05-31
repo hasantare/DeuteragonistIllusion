@@ -2,8 +2,9 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![image](https://github.com/DeuteragonistIllusion/DeuteragonistIllusion/assets/167505683/c0f815c5-536f-481f-92fd-263ef25960a8)
 # ♡ ｡
 
-“𝘏𝘶𝘮𝘢𝘯𝘴... 𝘵𝘩𝘦𝘺 𝘤𝘢𝘯'𝘵 𝘣𝘦 𝘵𝘳𝘶𝘴𝘵𝘦𝘥. 𝘈𝘯𝘥 𝘵𝘩𝘦 𝘨𝘰𝘥𝘴 𝘧𝘪𝘭𝘭 𝘮𝘦 𝘸𝘪𝘵𝘩 𝘱𝘶𝘳𝘦 𝘭𝘰𝘢𝘵𝘩𝘪𝘯𝘨. 𝘚𝘰 𝘐 𝘴𝘢𝘪𝘥 𝙜𝙤𝙤𝙙 𝙧𝙞𝙙𝙙𝙖𝙣𝙘𝙚.ᐟ 𝘐 𝘥𝘦𝘯𝘰𝘶𝘯𝘤𝘦 𝘵𝘩𝘦 𝘸𝘰𝘳𝘭𝘥 𝘢𝘯𝘥 𝘭𝘢𝘶𝘨𝘩 𝘪𝘯 𝘪𝘵𝘴 𝘧𝘢𝘤𝘦.”
-#
+## “May I 𝙠𝙞𝙨𝙨 𝘺𝘰𝘶 then? On this m̲i̲s̲e̲r̲a̲b̲l̲e̲ 𝗽𝗮𝗽𝗲𝗿? I might as well 𝘰𝘱𝘦𝘯 the 𝘄𝗶𝗻𝗱𝗼𝘄 and k̲i̲s̲s̲ the night 𝗮𝗶𝗿.”ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+
+
 ## ♡ ｡ 𓈒 . . [ About user @iidiorian ] ₊ ݁ ੭
 
 
