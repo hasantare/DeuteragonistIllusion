@@ -1,7 +1,3 @@
-<p align="center">
-  <img src="https://github.com/DeuteragonistIllusion/DeuteragonistIllusion/assets/167505683/fca6bc39-93bf-4eac-83ef-423f70ad0b48">
-</p>
-
 #
 
 <p align="center">
