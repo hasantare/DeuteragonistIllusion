@@ -5,8 +5,11 @@
 
 # ♡ ｡
 ㅤㅤㅤㅤㅤㅤㅤㅤ
-
+<p align="center">
+<img src="https://github.com/DeuteragonistIllusion/DeuteragonistIllusion/assets/167505683/fe85643b-753a-4271-8cdc-7d5b0860cb80"/>
+</p>
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+
 #
 ## ♡ ｡ 𓈒 . . [ About user @iidiorian ] ₊ ݁ ੭ㅤㅤㅤㅤ
 
