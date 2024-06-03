@@ -5,19 +5,19 @@
 </p>
 
 #
-# ☆ . . [ About user @DeuteragonistIllusion ] ₊˚
+### [☆ . . [ About user @DeuteragonistIllusion ] ₊˚ ![kiss me](https://narcissist.crd.co/assets/images/gallery05/aba297e6.gif?v=da51edb5_)
 
-🌷 ` # , Kei / Idior / Keith , , Any other nicknames are welcome ‹𝟹
+![hrts](https://64.media.tumblr.com/e9cc4591f4e712116735c64390a82eda/tumblr_inline_p9a6oyGPKs1qid2nw_75sq.gif) ` # , Kei / Idior / Keith , , Any other nicknames are welcome ‹𝟹
 
-𝗠i̲n̲o̲r̲ 🍥 . 12/04 ☆ . INFJ . Sagittarius ﹐💌୧
+𝗠i̲n̲o̲r̲ 🍥 . 12/04 ☆ . INFJ . Sagittarius ﹐![letter](https://64.media.tumblr.com/cf3d7e8d98760965777286be4b652bc6/tumblr_inline_p961ajbQow1qid2nw_75sq.gif)୧
 
-₊˚꒰🍓꒱ Genderfluid . Aroace 🍁٫ ໋ ᘏ ،
+₊˚꒰🍓꒱ Genderfluid . Aroace ![kitten](https://i.imgur.com/QnNCMHZ.gif)٫ ໋ ᘏ ،
 
-🧷 . ꒰𝗺𝗮𝗰 , 𝘧𝘳𝘢𝘯 , m̲a̲y̲o̲꒱ , omi, ash, jonah
+![ribbon](https://64.media.tumblr.com/e4376953464dffa7cec565724329d111/tumblr_inline_p961ag6HjL1qid2nw_75sq.gif) . ꒰𝗺𝗮𝗰 , 𝘧𝘳𝘢𝘯 , m̲a̲y̲o̲꒱ , omi, ash, jonah, toshi,
 
 #
 
-### ⨳﹑DNI！﹒🌿﹔ꔠ
+### ![left wing](https://caterpie.crd.co/assets/images/gallery23/fbb54c4a.gif?v=8cec5808) ⨳﹑DNI！ꔠ ![right wing](https://caterpie.crd.co/assets/images/gallery23/ec6a3e9c.gif?v=8cec5808)
 
 - ▹ General / Basic DNI Criteria.
 - ▹ People who use slurs they can't reclaim.
