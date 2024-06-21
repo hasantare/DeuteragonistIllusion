@@ -1,2 +1,3 @@
-# redoing my whole repository, will provide information soon!!
-![silly](https://graphic.neocities.org/Tumblr_l_606302124244718.gif)
+<p align="center">
+About @DeuteragonistIllusion / IIdiorian . .
+</p>
