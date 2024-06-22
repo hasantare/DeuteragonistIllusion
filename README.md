@@ -44,7 +44,7 @@ $\Large{EXTRA}$ ![a](https://watermelon.crd.co/assets/images/gallery05/e39516b1.
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![meow](https://64.media.tumblr.com/3a5c65b2ad6e0351d30113982990f993/59529026e66043b3-75/s1280x1920/f8b35da75fdacfba7dde49582b59216940345c23.pnj)
 
 <p align="center">
-$\Large{HONORABLE \ \ MENTION!!! \\ (FOLLOW \ THEM \ /NF)}$
+$\Large{HONORABLE \ \ MENTIONS!!! \\ (FOLLOW \ THEM \ /NF)}$
 </p>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![meow](https://i.imgur.com/udGOht7.png)
