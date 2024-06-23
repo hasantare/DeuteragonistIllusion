@@ -42,15 +42,14 @@ $\Large{BYI \\ (BEFORE \ YOU \ INTERACT)}$
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![a](https://64.media.tumblr.com/3a5c65b2ad6e0351d30113982990f993/59529026e66043b3-75/s1280x1920/f8b35da75fdacfba7dde49582b59216940345c23.pnj)
 
-<p align="center">
-$\Large{HONORABLE \ \ MENTIONS!!! \\ (FOLLOW \ THEM \ /NF)}$
-</p>
+
+ 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![a](https://i.imgur.com/udGOht7.png)
 
 <div align="center"> 
 
-![a](https://watermelon.crd.co/assets/images/gallery05/4b5da243.gif?v=9a76615e) [@dyuneru](https://github.com/dyuneru) <br> ![a](https://watermelon.crd.co/assets/images/gallery05/4b5da243.gif?v=9a76615e) [@macaronidingdong](https://github.com/macaronidingdong) <br> ![a](https://watermelon.crd.co/assets/images/gallery05/4b5da243.gif?v=9a76615e) [@Roses2Bullets](https://github.com/Roses2bullets) <br> ![a](https://watermelon.crd.co/assets/images/gallery05/4b5da243.gif?v=9a76615e) [@OmniscientProtagonist](https://github.com/OmniscientProtagonist) <br> ![a](https://watermelon.crd.co/assets/images/gallery05/4b5da243.gif?v=9a76615e) [SethanIrl](https://github.com/SethanIrl) <br> ![a](https://watermelon.crd.co/assets/images/gallery05/4b5da243.gif?v=9a76615e) [@harestar](https://github.com/harestar)  <br> ![a](https://watermelon.crd.co/assets/images/gallery05/4b5da243.gif?v=9a76615e) [soraasher](https://github.com/soraasher)
+![a](https://watermelon.crd.co/assets/images/gallery05/4b5da243.gif?v=9a76615e) [@dyuneru](https://github.com/dyuneru) <br> ![a](https://watermelon.crd.co/assets/images/gallery05/4b5da243.gif?v=9a76615e) [@macaronidingdong](https://github.com/macaronidingdong) <br> ![a](https://watermelon.crd.co/assets/images/gallery05/4b5da243.gif?v=9a76615e) [@Roses2Bullets](https://github.com/Roses2bullets) <br> ![a](https://watermelon.crd.co/assets/images/gallery05/4b5da243.gif?v=9a76615e) [@OmniscientProtagonist](https://github.com/OmniscientProtagonist) <br> ![a](https://watermelon.crd.co/assets/images/gallery05/4b5da243.gif?v=9a76615e) [SethanIrl](https://github.com/SethanIrl) <br> ![a](https://watermelon.crd.co/assets/images/gallery05/4b5da243.gif?v=9a76615e) [@harestar](https://github.com/harestar)  <br> ![a](https://watermelon.crd.co/assets/images/gallery05/4b5da243.gif?v=9a76615e) [@soraasher](https://github.com/soraasher)
 </div>
 
 <div align="center">
