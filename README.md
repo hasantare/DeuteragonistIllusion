@@ -49,7 +49,7 @@ $\Large{BYI \\ (BEFORE \ YOU \ INTERACT)}$
 
 $\Large{DNI \\ (DO \ NOT \ INTERACT)}$
 
-![the](https://watermelon.crd.co/assets/images/gallery05/66ce1a7b.gif?v=6332de85) General DNI Criteria / Basic DNI Criteria <br> ![hand](https://watermelon.crd.co/assets/images/gallery05/66ce1a7b.gif?v=6332de85) Zionists. <br> ![that](https://watermelon.crd.co/assets/images/gallery05/66ce1a7b.gif?v=6332de85) Proshippers. <br> ![feeds](https://watermelon.crd.co/assets/images/gallery05/66ce1a7b.gif?v=6332de85) Pedophiles, Groomers, MAPs. <br> ![me](https://watermelon.crd.co/assets/images/gallery05/66ce1a7b.gif?v=6332de85) Zoophiles.. <br> ![slap](https://watermelon.crd.co/assets/images/gallery05/66ce1a7b.gif?v=6332de85) Anyone who sexualizes minors or real people (underage or not).. <br> ![at](https://watermelon.crd.co/assets/images/gallery05/66ce1a7b.gif?v=6332de85) Anyone who romanticizes mental illnesses, abuse, possessiveness, stalkers, etc. <br> ![the](https://watermelon.crd.co/assets/images/gallery05/66ce1a7b.gif?v=6332de85) Anyone who invalidates someone's feelings or boundaries. <br> ![face](https://watermelon.crd.co/assets/images/gallery05/66ce1a7b.gif?v=6332de85) People who, for some reason, dislike neopronouns or xenopronouns / xenogenders. <br> ![that](https://watermelon.crd.co/assets/images/gallery05/66ce1a7b.gif?v=6332de85) Anyone who sexualizes Culture or Religion. <br> ![eats](https://watermelon.crd.co/assets/images/gallery05/66ce1a7b.gif?v=6332de85) People who use slurs they cannot reclaim. or people who use an overwhelming amount of slurs, way too often. <br> ![me](https://watermelon.crd.co/assets/images/gallery05/66ce1a7b.gif?v=6332de85) Ragebaiters that go too far.
+![the](https://watermelon.crd.co/assets/images/gallery05/66ce1a7b.gif?v=6332de85) General DNI Criteria / Basic DNI Criteria <br> ![hand](https://watermelon.crd.co/assets/images/gallery05/66ce1a7b.gif?v=6332de85) Zionists. <br> ![that](https://watermelon.crd.co/assets/images/gallery05/66ce1a7b.gif?v=6332de85) Proshippers/Comshippers. <br> ![feeds](https://watermelon.crd.co/assets/images/gallery05/66ce1a7b.gif?v=6332de85) Pedophiles, Groomers, MAPs. <br> ![me](https://watermelon.crd.co/assets/images/gallery05/66ce1a7b.gif?v=6332de85) Zoophiles.. <br> ![slap](https://watermelon.crd.co/assets/images/gallery05/66ce1a7b.gif?v=6332de85) Anyone who sexualizes minors or real people (underage or not).. <br> ![at](https://watermelon.crd.co/assets/images/gallery05/66ce1a7b.gif?v=6332de85) Anyone who romanticizes mental illnesses, abuse, possessiveness, stalkers, etc. <br> ![the](https://watermelon.crd.co/assets/images/gallery05/66ce1a7b.gif?v=6332de85) Anyone who invalidates someone's feelings or boundaries. <br> ![face](https://watermelon.crd.co/assets/images/gallery05/66ce1a7b.gif?v=6332de85) People who, for some reason, dislike neopronouns or xenopronouns / xenogenders. <br> ![that](https://watermelon.crd.co/assets/images/gallery05/66ce1a7b.gif?v=6332de85) Anyone who sexualizes Culture or Religion. <br> ![eats](https://watermelon.crd.co/assets/images/gallery05/66ce1a7b.gif?v=6332de85) People who use slurs they cannot reclaim. or people who use an overwhelming amount of slurs, way too often. <br> ![me](https://watermelon.crd.co/assets/images/gallery05/66ce1a7b.gif?v=6332de85) Ragebaiters that go too far.
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![a](https://64.media.tumblr.com/3a5c65b2ad6e0351d30113982990f993/59529026e66043b3-75/s1280x1920/f8b35da75fdacfba7dde49582b59216940345c23.pnj)
 
@@ -67,4 +67,12 @@ $\Large{HONORABLE \ MENTIONS!! \ (FOLLOW \ THEM \ /NF)}$ <br> (They're very cool
 <div align="center">
 
 ![purr](https://watermelon.crd.co/assets/images/gallery21/24557b5d.gif?v=9a76615e)
+</div>
+
+<p align="center">
+Consider helping Palestine with a singular click on:
+</p>
+<div align="center"> 
+
+ ***[this website!!](https://arab.org/click-to-help/palestine/#google_vignette)*** /not forcing
 </div>
